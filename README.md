@@ -9,4 +9,4 @@ This is only a concept project.
 -Ng Yong Ming
 ## Project Deliverable
 【Download Pitch Deck (PDF)】
-(https://www.canva.com/design/DAGwbpbwemY/MspoK7y2KKnW960WTz58HA/edit?utm_content=DAGwbpbwemY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+(https://pdf.ac/MSqIW23dk)
